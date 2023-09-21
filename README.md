@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **kalagotla.srinivas123@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1k2VRNGk_qsNE3wqh3Ij6Sp-Z0S0v8OcY/view?usp=drive_link](https://drive.google.com/file/d/1k2VRNGk_qsNE3wqh3Ij6Sp-Z0S0v8OcY/view?usp=drive_link)](https://drive.google.com/file/d/13jz8s6FajnWAM0mvVYmwhGbDonOdhj0M/view?usp=sharing)
+- 📄 Know about my experiences https://drive.google.com/file/d/13jz8s6FajnWAM0mvVYmwhGbDonOdhj0M/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
