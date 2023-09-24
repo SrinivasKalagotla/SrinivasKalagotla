@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Java, Android Development (Wear and Mobile)**
 
-- 📫 How to reach me **kalagotla.srinivas123@gmail.com**
+- 📫 How to reach me **kalagotla.srinivas07@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/13jz8s6FajnWAM0mvVYmwhGbDonOdhj0M/view?usp=drive_link](https://drive.google.com/file/d/1oYBDqFlFNCL9aEd8X4g5adhsnbopI_qG/view?usp=drive_link)
 
